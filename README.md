@@ -1,12 +1,6 @@
 # goodbye TUX4M user
 
-im rlly friendly dont be afraid to int... w2i when im busy or away.. i sincerely apologize if i dont respond to ur whisper.. i dont mean toooooo....
-
-[PONY TOWN INFO HERE](https://rentry.co/sillyhorsiegame) . still wip ... SRRY IM A HUGE PROCRASTINATER.. theres a lot of info abt me here sorry i like talking abt myself LOL
-
-**AWESOME PEOPLE!!1!11!** - Kiyo, Joons/Flowa, Pyxle, Yoosu/Ardawyn, Ana, Whisp, [Moon](https://www.patreon.com/cryingmoon), Hina, [Vanilla/Van](https://www.patreon.com/Vanillaicecreamsandwich/about), [Miyo](https://github.com/bivalensong), [Vas](https://github.com/iorimotohashi), [Fei](https://github.com/antimonies)
-
-`^^ anyone not here r still very much appreciated <3`
+ZENO remake is got to be the most dumbest thing I have ever heard of, and here's why. So the reason why ZENO remake is because it's just a stupid horror thing or comedy and it's or a game. (?) And the reason why it's terrible is because it's just from 2015 in an English version. It's just a stupid remake. Like wow. Because I did some research about it and I wrote that it was a stupid psychological horror thing. That. It's just not worth it. All right? It's just alot of nothing in there. And the style even looks fake. Because I bet they even draw it on a paper and then taking a picture of it over and over again, to make it look like it's from the computer, but it's not. Zeno remake is just a ridiculous thing, which should not even exist to begin with. Because the style is even so fake and I bet they stole the style from anime too. Also, there are 13 endings and stupid game overs. I'd also did some research about it and yeah, it's just unbelievably ridiculous. Like, can you imagine being a fan of ZENO remake? I could never and I'm never going to. Because, I just hate the style of it. The style is just honestly just not worth it. It's fake. But I am here to say today. Because I am the one who's gonna get ZENO remake cancelled and you all gonna say thank you so much to me. 
 
 ***
 maeno aki
