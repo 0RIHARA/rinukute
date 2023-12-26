@@ -1,4 +1,4 @@
-PLS DO CHECK OUT MY DNI BEFORE INTERACTING IN ANY SORT OF WAY <3 dont want to be disappointed ever again 😅
+PLS DO CHECK OUT MY DNI BEFORE INTERACTING IN ANY SORT OF WAY <3
 
 # [ZENO remake is dumb](https://vt.tiktok.com/ZSNsnEJFa/)
 
